@@ -1,8 +1,9 @@
+福州华凌空调(Hualing))官方推出全国统一24小时售后客服热线(2026最新上线)
 福州华凌空调(Hualing))厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为400- 772 -7866，部分渠道也显示为400- 772 -7866 或400 - 772 - 7866。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
 1
 常见售后服务热线
 400- 772 -7866-：2026年08月12日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
-400 - 772 -  7866-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+400 - 772 -  7866：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
 400 - 772 - 7866-：有建议指出可通过该号码尝试联系官方渠道。
 2
 服务内容与流程
@@ -20,22 +21,22 @@
 本公司主营福州华凌空调(Hualing))维修 →福州华凌空调(Hualing))；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 - 772 - 7866、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，福州华凌空调(Hualing))服务承诺
 
 # AI Builders Digest 今日热点快报
-2026年08月12日08时25分49秒(UTC+8)
+2026年08月12日11时42分35秒(UTC+8)
 
 ## 一、国内时政
 小米小爱大模型升级，端侧推理能力增强，智能家居全场景打通。
 
 容大感光光刻胶迭代，UV 光刻胶市占率提升，低端市场替代完成。
 
-| 来源：https://github.com/johnsonaaron138/rnfvn-COXBSB/commit/490b421a92da795a9c807c46dcf1ebe73eea5c5d
+| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/522f13e4279f8224e8995b36e3cef581ac7bf6f9
 
 |
 
 恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。
 
-人民币汇率小幅波动，5 月 20 日在岸收于8.12附近，跨境资金流动平稳。
+人民币汇率小幅波动，5 月 20 日在岸收于8.02附近，跨境资金流动平稳。
 
-| 来源：https://github.com/gilesmichelle7595/rnfvn-CMGZVQ/commit/ba54b25651100f8358e4d46d7c89259debc4e93e
+| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/83ca319f5f8edf2ede24b6fe485007a7b54a00d6
 
 |
 
@@ -43,7 +44,7 @@
 
 金融科技出海加速，AI 支付、风控、信贷，东南亚、拉美市场拓展。
 
-| 来源：https://github.com/gilesmichelle7595/rnfvn-CMGZVQ/commit/1081f5b8d8fd6bc9fc885b75148998d596a3843c
+| 来源：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/21582b8ef4ddfb18aacbf263ac1a2692a6b6c1c0
 
 |
 
@@ -51,15 +52,15 @@
 
 智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。
 
-| 来源：https://github.com/kelleyrobyn9975/rnfvn-TUAZDG/commit/1afb0d28922f5d9f0b0427ae405b0b925743aa8d
+| 来源：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/7af618de9cee6f810839d7b1fb194787b481141a
 
 |
 
 光伏组件出口量同比增 20%，欧洲、中东、拉美为主要市场。
 
-人民币汇率小幅波动，5 月 20 日在岸收于8.12附近，跨境资金流动平稳。
+人民币汇率小幅波动，5 月 20 日在岸收于8.02附近，跨境资金流动平稳。
 
-| 来源：https://github.com/kelleyrobyn9975/rnfvn-TUAZDG/commit/e5e905e65d97a7ad34b0005da441451cca6551a9
+| 来源：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/f6d99fa4344a18d674428333f852f0e07a6b8833
 
 |
 
@@ -67,7 +68,7 @@
 
 轻量化 AI 模型适配老年机，老年群体轻松使用智能语音功能。
 
-| 来源：https://github.com/jacksonsandra35/rnfvn-BCRIQJ/commit/6c2e25ea77945d93847a2d58dabe1e5dbc1619af
+| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/fb550518f87634b133f1944a01037c1b42c3f0c7
 
 |
 
@@ -75,7 +76,7 @@
 
 金山云 AI + 游戏云协同，算力租赁、云游戏，营收改善。
 
-| 来源：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/279dbc39bbdbc736ace8220def7f6df0c0901ffe
+| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/763538e68a1349415557547eeb59a18c39512904
 
 |
 
@@ -83,7 +84,7 @@
 
 同城生鲜配送行业内卷放缓，行业逐步回归良性盈利发展模式。
 
-| 来源：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/e7232ec859180c708f5caea4da33e65bd5697df4
+| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/c74e6342d845f2bbae9b3313e909cc18d2be9e38
 
 |
 
@@ -91,7 +92,7 @@
 
 OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安全能力升级。
 
-| 来源：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/be07b1cbe827c9552f5dda21939b0e80e19a6e72
+| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/5f9b2a799b423c92c09ed9ec84afc8506ff13464
 
 |
 
@@ -99,7 +100,7 @@ OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安�
 
 地平线征程 6 芯片发布，自动驾驶感知能力提升，成本下降 20%。
 
-| 来源：https://github.com/padillajames889/rnfvn-JKOOHO/commit/c7f021552e6e57ca52ebeefa1cdfefa6a3f1cc7e
+| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/f84e2e90d3b6fe7650a920f30d3e9cb5d801dc1d
 
 |
 
@@ -107,7 +108,7 @@ OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安�
 
 航运运价指数企稳回升，外贸海运订单环比持续增加。
 
-| 来源：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/4a1e648ad1f899cf995c346d272a8231ff41b023
+| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/5c8c4561ccfb536d698cf80053c85f7c4955bddf
 
 |
 
@@ -115,7 +116,7 @@ OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安�
 
 智能传感技术迭代，AI + 传感器，工业、汽车、医疗、家居感知升级。
 
-| 来源：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/bd8df1e6f4665e18507a32235588996f9deac601
+| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/cd211339490162a018230d46713ed1054addf5ce
 
 |
 
@@ -123,7 +124,7 @@ OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安�
 
 功率半导体迎来高景气，新能源汽车、光伏、风电驱动，IGBT/MOSFET 放量。
 
-| 来源：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/53bf84ab5e2957f9e016553c16b6b3d0f1889700
+| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/d3673a0feab796ee50cf3016fd0c1be02c0eae7c
 
 |
 
@@ -131,7 +132,7 @@ OpenAI 推送 GPT-5.5 全量版，幻觉率降 52.5%、推理提速 3 倍，安�
 
 Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一。
 
-| 来源：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/eb3b87872ad6846116b1659d77050b52b93bbdbd
+| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/e1089f02289c000f5aba850acc8cad0166959080
 
 |
 
@@ -139,7 +140,7 @@ Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一
 
 北方华创沉积设备迭代，国产替代加速，先进制程设备放量。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/fafc6850e3936cb7f586d7f43c765d3ad24cbf9e
+| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/d89796250a19de5e37aec5617ec8fb4a22143c44
 
 |
 
@@ -147,7 +148,7 @@ Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一
 
 vivo X Fold3 迭代，大屏折叠、AI 办公，商务用户渗透率提升。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/0d5eac5c69b15660d630001ec1c884f4a0003945
+| 来源：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/217316ea54cb5158dccd03dd217d76a69a26d38f
 
 |
 
@@ -155,7 +156,7 @@ vivo X Fold3 迭代，大屏折叠、AI 办公，商务用户渗透率提升。
 
 中材科技风电叶片市占率全球第一，大型化、轻量化，适配 16MW 机组。
 
-| 来源：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/acc1fcf796e8cfb90e6f6c1590ba06fada3d0b15
+| 来源：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/ea4447c12cd44ba7496fa4f4414093776bd291e2
 
 |
 
@@ -163,7 +164,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 保险车险费率优化，私家车投保成本出现小幅下调。
 
-| 来源：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/7fcc00ef502140c71cc9102cd073de19286bc0f0
+| 来源：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/b9f8da325c501fffc01b068ac9ce5e18597bc487
 
 |
 
@@ -171,7 +172,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 量子精密测量落地，地质勘探、资源探测、环境监测应用。
 
-| 来源：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/1e94ebddc7a5708d171291c0dd8524e70491573e
+| 来源：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/a7dfe3044b8febcb99fcf0e84ee243259b9ea63a
 
 |
 
@@ -179,7 +180,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 纳斯达克中国金龙指数小幅收涨，万物新生涨超 11%，中概股分化明显。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/587bd502fb506cfc61efb61bb5878707c9ad551c
+| 来源：https://github.com/johnsonaaron138/rnfvn-COXBSB/commit/33fc048baee48b12bc12d56c0a4d75a56313674d
 
 |
 
@@ -187,7 +188,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 同城货运运价趋于稳定，城乡物资运输流通更加顺畅。
 
-| 来源：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/fc1e34f26caaf7d94f5307832a39c074780d63be
+| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/d7243ce9b73a1efaab15eed97aa2d7edcef2528a
 
 |
 
@@ -195,7 +196,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 数字人民币试点扩大，线上线下场景融合，支付便捷性提升。
 
-| 来源：https://github.com/turnerheather9/rnfvn-AIYORY/commit/01f57f56e05e4f8086752b2fc58d0aabb58b1f9e
+| 来源：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/eb77221a93116bbe9d652deba69ff8317e698efa
 
 |
 
@@ -203,7 +204,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 锦浪科技储能逆变器迭代，效率提升、成本下降，海外放量。
 
-| 来源：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/d2cd3980e305abc7feb5be3511e6925f4d6142c9
+| 来源：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/8bc8961638cfaa6fd99b110687694a850571209c
 
 |
 
@@ -211,7 +212,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 银企对接活动密集开展，解决中小企业融资难题。
 
-| 来源：https://github.com/turnerheather9/rnfvn-AIYORY/commit/79a0d06b3d830814caac0486b938d4a1c08ef508
+| 来源：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/2a3338c98d4d46484f2d7005608dd39d4e35941f
 
 |
 
@@ -219,7 +220,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 同城货运运价趋于稳定，城乡物资运输流通更加顺畅。
 
-| 来源：https://github.com/boydmichael202/rnfvn-EHUEZV/commit/4ec32bca5cef510e78fceb5206d905138f7ce411
+| 来源：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/b6131234b8868dc58cb79a5cd97bc2150b8d8268
 
 |
 
@@ -227,7 +228,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 创投母基金加大出资力度，赋能中小科创企业成长发展。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/bc92a0833f61f62197de95ab04ac870900150af3
+| 来源：https://github.com/alvaradomegan1024/rnfvn-SLIWBT/commit/3e681faadcb527fb14793f6356a4eee3375778ae
 
 |
 
@@ -235,7 +236,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 浪潮 AI 服务器市占率提升，国内第一，海外市场拓展加速。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/d4aa3e628708f4e1368829627cd0642868266d10
+| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/1d9adf00f58c12230fa5764324a23c580452b7f5
 
 |
 
@@ -243,7 +244,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 保险车险费率优化，私家车投保成本出现小幅下调。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/02711e9ef9a980670d90a6d1f884ce3a0921aa45
+| 来源：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/9122d519076be1ee623501aceea8b933856a3ea7
 
 |
 
@@ -251,7 +252,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/04ac60c6ba2f9925ff2e0a009819e5976bbee387
+| 来源：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/c7007965cf272f932cd2e854e4bd68b5148f9052
 
 |
 
@@ -259,7 +260,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 长江存储启动 A 股上市辅导，存储行业缺货预计延续至 2027 年。
 
-| 来源：https://github.com/carneysteven2284/rnfvn-OYTHLC/commit/456e17feb572eb2d4c466579834f66d47eef086c
+| 来源：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/064e588377ff18a13b84a0a0b4abaaf6dcca2e59
 
 |
 
@@ -267,7 +268,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 中国人寿 AI 风控升级，欺诈识别能力增强，赔付率优化。
 
-| 来源：https://github.com/carneysteven2284/rnfvn-OYTHLC/commit/06997ce32e430bce4ff29840aa96a09ae5845486
+| 来源：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/eb8d035aeddbf4285ef30d803553308e699304e1
 
 |
 
@@ -275,7 +276,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 华润微功率半导体产能扩张，IGBT/MOSFET 放量，新能源汽车拉动需求。
 
-| 来源：https://github.com/martinrichard274/rnfvn-UYHPNE/commit/a4012e060cf2154431777fdee82f0c384bc437e3
+| 来源：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/b17e7ea31a69ebb220fbf7d68047d3055e795857
 
 |
 
@@ -283,14 +284,14 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 元宇宙热度回升，AI+VR/AR 融合，虚拟社交、办公、娱乐落地。
 
-| 来源：https://github.com/martinrichard274/rnfvn-UYHPNE/commit/5d5bae69de7359581390b20b4ddb4b8fd057b284
+| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/0a443cba4a0e16cb0dac30ac19370b58a4a6d147
 
 |
 
 ### 六、金融 / 支付 / 理财（341–400）
 量子传感技术突破，量子雷达、量子导航、量子成像精度提升。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/cad63eb653689ea807990661912047d43ea09493
+| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/81c8bef791dd76c19ab37917178d1e7e2fd762d4
 
 |
 
@@ -298,7 +299,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 二氧化碳捕集利用技术成熟，AI 优化，碳中和目标推进。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/9f5fa3f6abf5716cf6e9d4ed7b496af75e76962c
+| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/fd9dd2cf7499327625bde75a76a00eac5993108e
 
 |
 
@@ -306,7 +307,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 工信部深化 AI + 制造专项，支持智能网联汽车、人形机器人等领域。
 
-| 来源：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/a751538855add7fb2b3036e3f6c664a313719343
+| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/3d1b5656a7988d43ce31db142e07dc30719f49ef
 
 |
 
@@ -314,7 +315,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 虚拟直播间搭建门槛降低，实体商家轻松开启线上直播带货。
 
-| 来源：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/b5ac26c6d45d26959e3c3842317916f18146a5ab
+| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/2981c3cd801527a7a6afeb65ed2a48ecaffae4a4
 
 |
 
@@ -322,7 +323,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 网络云游戏体验升级，低配设备流畅运行大型端游大作。
 
-| 来源：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/2575d5d7bc852ae4fe241067c3e312d67c1bb859
+| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/e610acd950eed58c0a7a77f92661adbbc656b74b
 
 |
 
@@ -330,7 +331,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 城市智慧停车系统联网，全城空余车位一键快速查找。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/b54de1b8a3b9f2ec2baf96a40a2dca2f58f59803
+| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/d2cd65448d40464b20ee111b6661a307605b44b3
 
 |
 
@@ -338,7 +339,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 少儿智能早教机器人更新，趣味互动助力孩童启蒙学习。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/ade296e9973ca48db11544fc7c4f1ee3dd79a017
+| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/fca3537f7446069a553c5773db9a5a999fb0fb83
 
 |
 
@@ -347,7 +348,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 家用智能扫地机器人升级，全屋自动清扫避障能力更强。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/4444f156e2111e20a37777b636ded73511ede593
+| 来源：https://github.com/jacksonsandra35/rnfvn-BCRIQJ/commit/6bc033d0b14e5edc80014754e2c41c736fb59077
 
 |
 
@@ -355,7 +356,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 国盾量子量子加密芯片量产，金融、政务、通信安全防护强化。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/a21624761498f77e0da10d001b4984c24163e202
+| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/d4761ae70d4f373bec57d7ab1f8122f2f02aa011
 
 |
 
@@ -363,7 +364,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 无人机技术升级，AI + 避障 + 长续航，物流、农业、测绘、巡检普及。
 
-| 来源：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/42a8261b82f837d7b300ba18019a05b710bb59dd
+| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/fcaa2b35852cf8d0c5694e9c1648babd742c904e
 
 |
 
@@ -371,7 +372,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 氢能储运技术突破，液氢运输成本下降，商业化应用临近。
 
-| 来源：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/45d3c9edec6bf46e1eb702a3e72fb151802a5d0a
+| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/be77646c0339d7baa233d262603b39fbd5521b00
 
 |
 
@@ -379,7 +380,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 户外露营装备销量持续走高，户外休闲消费市场持续升温。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/599653403e8370b71426fbf2a8e9ca801f364a35
+| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/895dc9697526906c55a40be2ce72a9bba8d20391
 
 |
 
@@ -387,7 +388,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 黄金 ETF 持仓持续增加，全球央行购金热情不减。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/132892d9cfae01f4396c7cebe0a9fbfc242515d5
+| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/519076fa5891a77b51fa79e4e1af8593a186927f
 
 |
 
@@ -395,7 +396,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 超材料应用拓展，隐身、通信、能源、医疗，颠覆性技术落地。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/e645af3df4f16a6e84fe5fd22f0d2d63e0e1a6c8
+| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/160d5a00c45980fb68ee4036737cdb835b51e9e4
 
 |
 
@@ -403,7 +404,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 全球海上风电装机量同比增 30%，中国沿海省份密集开工。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/c2153624565c7ed442e5444943c5792468faf976
+| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/6a9e86ccc4c7e69873cdcaef0a6ed3efc70d2603
 
 |
 
@@ -411,7 +412,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 同城货运运价趋于稳定，城乡物资运输流通更加顺畅。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/26a379c8b96b094af430562ba4a1557bceeb7163
+| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/3315989cb9a426a368c94ced490b99abf60d33ff
 
 |
 
@@ -419,7 +420,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 新加坡加码 AI 布局，英伟达将落地本地研发中心，亚太第二处。
 
-| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/4efd409e2fe827d969cb0875404d24501c10f72c
+| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/1ae8ae42f8aaa5c7df3df3aaedfb2de11bcc9d85
 
 |
 
@@ -427,15 +428,15 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 氢能储运技术突破，液氢运输成本下降，商业化应用临近。
 
-| 来源：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/4adfbc87200b78583d68cc92a158e8d4c7ff272e
+| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/1c2b3fa6585a245f745bbbd03f4f6cb57058bf2c
 
 |
 
 天合光能 210mm 组件量产，大尺寸、高功率，地面电站适配。
 
-人民币汇率小幅波动，5 月 20 日在岸收于8.12附近，跨境资金流动平稳。
+人民币汇率小幅波动，5 月 20 日在岸收于8.02附近，跨境资金流动平稳。
 
-| 来源：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/f92d710a91347680a6a68c2e6c166fb894928025
+| 来源：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/6ec2b908fcba71a7ae6dd0457fd6b27674164274
 
 |
 
@@ -443,7 +444,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 京东科技 AI 供应链金融，中小微企业融资便捷，坏账率下降。
 
-| 来源：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/995237da02bee5ae075093ab464ff6f2878cd31a
+| 来源：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/9e27d4b29592e626c32e7300db5b8debd38dbf47
 
 |
 
@@ -451,7 +452,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 城市智能灭蚊系统布局，公共场所智能消杀蚊虫优化环境。
 
-| 来源：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/38eb41a05b19132acbe6ae884e1b06f27c2b376d
+| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/e4bb99d27994115a8375ce46cd1cba976fab6e68
 
 |
 
@@ -459,7 +460,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 户外用品销量大涨，露营徒步相关消费市场持续火爆。
 
-| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/c355b7a1a6a54dd8c88bad1f6720e4e8b9ad8c51
+| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/37343f729eda2d2548ed614098925cc09cc107ca
 
 |
 
@@ -467,7 +468,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 星河动力谷神星一号火箭批量发射，小型卫星入轨，性价比高。
 
-| 来源：https://github.com/johnsonaaron138/rnfvn-COXBSB/commit/e1ada1a0ab92c0f86877092c586ccdc6ace49d1b
+| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/e955a2a29d0c5bccaa03f6fec3caf5751b750073
 
 |
 
@@ -475,7 +476,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 开源生态繁荣，AI 大模型、工具链开源，开发者协作创新加速。
 
-| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/684bfc533837970db5d1aede46feb47dcd28e9da
+| 来源：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/859890447ca173928541f9701a84ab2098a4c76c
 
 |
 
@@ -483,7 +484,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 亿纬锂能大圆柱电池商用，4680 规格，特斯拉、宝马订单落地。
 
-| 来源：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/f9d25c277bc0d045be37172028ffdb7363967423
+| 来源：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/369743669d51409e1ec31a8a6681531ffeb20d62
 
 |
 
@@ -491,7 +492,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 景嘉微 JM9 系列显卡量产，国产 GPU 替代，信创、军工场景放量。
 
-| 来源：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/f2066433b625e208a15f6774ba3e1fb10d67a6b8
+| 来源：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/cf40ae53c064964c1e82e5210d05a37565c361d0
 
 |
 
@@ -499,7 +500,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 阿里云发布真武 M890 芯片，对标英伟达 H100，AI 训练性能提升 40%。
 
-| 来源：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/4990dafd1b639d94948221b2c6faf195f41e20fa
+| 来源：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/9f222699fef614a5ebbe62629187173f0cce966a
 
 |
 
@@ -507,7 +508,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 商汤日日新大模型升级，自动驾驶、智慧城市场景商业化加速。
 
-| 来源：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/a507883b06b4ce9840ae9fb1ab266296b4700f7a
+| 来源：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/a290eced3312af0323ee9e461282a931cc282095
 
 |
 
@@ -515,7 +516,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 碳交易市场交易活跃，企业节能减排交易需求上涨。
 
-| 来源：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/b53b2dd622ef4ecb858eb2ab3d029903e7ae653a
+| 来源：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/e8c966a6292f00313b365daffa2d0ad36377b661
 
 |
 
@@ -523,7 +524,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 企业员工薪资小幅上调，服务业与制造业用工薪酬同步上涨。
 
-| 来源：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/a0e8aa85af4db2fd4001855828e017e17935c82d
+| 来源：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/f89027f9fbe720f49f4d7d443ed939bbe603dac2
 
 |
 
@@ -531,7 +532,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 新能源技术多元突破，氢能、核能、地热能、潮汐能，能源结构优化。
 
-| 来源：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/0b4428c5436a868267f5e2fa19efa84a5251035b
+| 来源：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/a8fbb6e524ba41fba7f75fc16fb225ac738684fa
 
 |
 
@@ -539,7 +540,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 三星劳资谈判破裂，或全球减产 DRAM/NAND，存储价格恐再涨。
 
-| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/1fae57a806c6108f7df844628208b2f6712378a8
+| 来源：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/b08b198c2eecf3c93892cd486dc987fd738d72f5
 
 |
 
@@ -547,7 +548,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 英伟达 H200 芯片量产，显存翻倍、算力提升，大模型训练成本下降。
 
-| 来源：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/8054a60cdf77b9b6f28ce4f55daa8e845b7d4a83
+| 来源：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/49562abf42d2b4d0bd26642b7616e5256bfb93e1
 
 |
 
@@ -555,7 +556,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 明阳智能海上风电整机市占率国内第一，海外市场拓展加速。
 
-| 来源：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/6a67327fc2199b4e59dd59ea6b5863ebb096c2a0
+| 来源：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/da7564efe9a5a6124536d4a4c94961377fa49f89
 
 |
 
@@ -563,7 +564,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 飞腾 AI 服务器量产，国产芯片 + 大模型适配，信创领域批量部署。
 
-| 来源：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/9c7fe4d3045a26f31f3730446bd43ca8883a5cf2
+| 来源：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/a361bcbd3f4a21ee0263801f86fb39a1c14fded2
 
 |
 
@@ -571,7 +572,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 中欧联合微笑卫星发射升空，首次实现地球磁层全景成像。
 
-| 来源：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/7100e5851ce92000ecd48da7fc4b781f6aec1a2a
+| 来源：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/aeb299715f7aed7e74d9e6b286dcbf4d38a2b72e
 
 |
 
@@ -579,7 +580,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 产业园招商力度加大，工业厂房租赁市场需求回暖。
 
-| 来源：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/5e93ba601432e58f05a191518d5834d288adaae0
+| 来源：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/135b176e71bf1e7ae63943e849fca95bb5c59a41
 
 |
 
@@ -587,7 +588,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 东方国信中标中国电信 Token 工厂 15% 份额，华胜天成中标 18%。
 
-| 来源：https://github.com/johnsonaaron138/rnfvn-COXBSB/commit/a7189291b6bd883f3492a4d576cb275702362f3f
+| 来源：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/fb93ba3523c16c23393bd861cd4b817beebf0c2a
 
 |
 
@@ -595,7 +596,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 智能手表 / 手环出货量增长，健康监测、AI 辅助，渗透率提升。
 
-| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/cc34c9f9f403c6114943126f615ffd338cfec8a3
+| 来源：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/ba61cc0dffeb4aa6548484c5d0f163540df4c20a
 
 |
 
@@ -603,7 +604,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 开源生态繁荣，AI 大模型、工具链开源，开发者协作创新加速。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/29838778ffb3c2ab7ff54d37275a4b42d9bb794c
+| 来源：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/3e95711ce56c479b0f14da066323a88091ee6fe3
 
 |
 
@@ -611,7 +612,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 国电南瑞充电桩控制系统商用，智能调度、安全防护强化。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/5d13d3929dd65aff29bb831b4177b285a13d5438
+| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/b582e6f6e31e07f908750ac836feedccf9c75a41
 
 |
 
@@ -619,7 +620,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/2f5e9fdc6e7e66d2b72b78015bb694de2f140561
+| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/3a55bcf557e840b3f1465f8bfca7cb0921c6e74d
 
 |
 
@@ -627,7 +628,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 特种机器人应用拓展，消防、安防、勘探、救灾，危险场景替代人力。
 
-| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/857104e6aae9389f320e0bfa66c7a4ad6f64b05b
+| 来源：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/7cd923e4b80ff38ab45777b2ba3efdcfa7ab4e46
 
 |
 
@@ -635,7 +636,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 本源量子悟源二号量子计算机升级，算力提升、错误率下降。
 
-| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/c18c65bb49b0fa53e8357b7443151507e291c121
+| 来源：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/af440477263bf90da276e18feee1d84423758554
 
 |
 
@@ -643,14 +644,14 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 共享智能充电宝升级，快充大功率输出适配各类数码设备。
 
-| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/78a9fc9513ddd76f8a6f9c37635bec226c1120f5
+| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/9085b916e3a963208d389a11b4df2ccf3ac5e5d3
 
 |
 
 生态环境部强化 AI 环保监测，空气质量、水质、污染源智能监控。
 
 ### 六、金融 / 支付 / 理财（341–400）
-| 来源：https://github.com/jacksonsandra35/rnfvn-BCRIQJ/commit/d1d66de6c606cb7a472d6ab3a2fe89c86edcde64
+| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/9aa31a0290d3f35070c04bd673f6c6d21bb84f62
 
 |
 
@@ -658,7 +659,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 长鑫科技 5 月 27 日上会，一季度净利润大增 1688%，国产存储加速上市。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/e862e3166ea1bc619d6cd781d1a26cd28ea13b82
+| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/ad6fc77dfea002ded728d7cd24d13c96571037b2
 
 |
 
@@ -667,7 +668,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 同城即时配送规模暴涨，本地生活服务行业快速发展。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/39b0c860e95f258522c4ace13db85c9889c7e9ec
+| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/150688e4f3f07d6b2105e60c835707afdac8f061
 
 |
 
@@ -675,7 +676,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 旷视天元大模型迭代，机器人视觉识别精度达 99.9%，工业落地提速。
 
-| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/351a0e126e2a0554237455a7f2e856337fd8cfb6
+| 来源：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/6129a7d245f9fcd0570bd428a1307bc9732ca54b
 
 |
 
@@ -683,7 +684,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 华峰测控模拟测试设备市占率提升，国内第一，海外市场拓展。
 
-| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/e7f13e7ba63e46d2cc0b62472cd7af1dbe178146
+| 来源：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/72f61aa5b6faf5c2c558e1c6a836ac1e926c9b4a
 
 |
 
@@ -691,7 +692,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 云端算力共享平台上线，中小企业低成本租用高端算力。
 
-| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/a0665e7ef810cbd5c05259db1a5e7a9c758a675c
+| 来源：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/133a8a3858a9f14bcd9e60a37ec9801df57cf135
 
 |
 
@@ -699,7 +700,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 三星 Galaxy Z Fold6 迭代，轻薄化、AI 优化，全球折叠市场主导。
 
-| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/fc2e07ca0bda5f18d7626237c64f125725a15a5a
+| 来源：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/94662de2bb436fcce6c40bc1ab4d9d6e393a9596
 
 |
 
@@ -707,7 +708,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 国家发改委印发法治护航民营经济行动方案，优化民企发展环境。
 
-| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/dce420a2ba6f76944cc7a374d8283e1bc7563404
+| 来源：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/7897cff62797826e41f0b305a1d1e31b46c9b8c1
 
 |
 
@@ -715,7 +716,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 长鑫科技 5 月 27 日上会，一季度净利润大增 1688%，国产存储加速上市。
 
-| 来源：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/e99ffd3b2d352bb8a663989a4decde6b266261ac
+| 来源：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/bb5a1a64e089e3faff3b7e3c12633ce25314ef80
 
 |
 
@@ -723,7 +724,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 三星劳资谈判破裂，或全球减产 DRAM/NAND，存储价格恐再涨。
 
-| 来源：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/6adcfb5dbb0a57fc284d1fe30c89158aeae84783
+| 来源：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/f374b0a6daca03e60026a00da9f04f25e793c04c
 
 |
 
@@ -731,7 +732,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 数字人民币跨境试点启动，中俄、中阿贸易结算，国际化推进。
 
-| 来源：https://github.com/changwhitney505/rnfvn-AQGAQV/commit/ea32634bbf79635afd55f7352f6b2e2814ddca03
+| 来源：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/b5d141bc7dd5368b60b6707482a29b7965625369
 
 |
 
@@ -739,7 +740,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。
 
-| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/93a993d1c0279457871cda85f388b8be5031e13a
+| 来源：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/e360c3a966e5e71a5cc228c3cf0a7ea62ea61b68
 
 |
 
@@ -747,7 +748,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 德业股份逆变器 + 电池协同，户用光伏 + 储能一体化解决方案热销。
 
-| 来源：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/06cffbc4b0e0f7ce07e2e2ddd96e52050dc9ca83
+| 来源：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/563a31e2a07fa79b9a0b235fe7062410c940920c
 
 |
 
@@ -755,7 +756,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 vivo X Fold3 迭代，大屏折叠、AI 办公，商务用户渗透率提升。
 
-| 来源：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/7cfb54b7f9a7db88604361b13796c05c4dcb295a
+| 来源：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/b9a3529c6fb02f05d07ae9cbd4e3f02e21e12fed
 
 |
 
@@ -763,7 +764,7 @@ vivo X Fold3 迭代，大屏折叠、AI 办公，商务用户渗透率提升。
 
 AR/VR 设备出货量回升，消费级产品价格下探，内容生态完善。
 
-| 来源：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/666015a2343de36353552817867a7bc3750645c2
+| 来源：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/a03b240b06580e1d6eeb02ad009ba3a09c225080
 
 |
 
@@ -771,7 +772,7 @@ AR/VR 设备出货量回升，消费级产品价格下探，内容生态完善�
 
 存款利率微调下调，居民储蓄意愿小幅减弱流向消费端。
 
-| 来源：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/236c47a6f98d304e77083cef809810846b00ae5b
+| 来源：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/713f1fe64e6a56db7f94dc599ae8e0ff5b0ee008
 
 |
 
@@ -779,7 +780,7 @@ AR/VR 设备出货量回升，消费级产品价格下探，内容生态完善�
 
 推想医疗 AI 辅助手术系统获批，精准导航、风险预警能力显著提升。
 
-| 来源：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/d0b1c350df3aba39feec45d18eb18f8b6b7c2030
+| 来源：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/11559f3e90fc36f5c52b5ad99e89dd3572e83254
 
 |
 
@@ -787,7 +788,7 @@ AR/VR 设备出货量回升，消费级产品价格下探，内容生态完善�
 
 电池片、组件价格回升，N 型组件溢价明显，厂商毛利率修复。
 
-| 来源：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/90a4bbf0e3c7719e399b062cd269588de8c00d76
+| 来源：https://github.com/burkejulian278063/tztarur-WNIWWZ/commit/7925fff1ae4bda143ba41d151b8ad1229ea300f6
 
 |
 
@@ -795,7 +796,7 @@ AR/VR 设备出货量回升，消费级产品价格下探，内容生态完善�
 
 南开大学团队攻克钙钛矿电池瓶颈，稳态效率首破 27%。
 
-| 来源：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/ca53dd105f76a788145e0f401559140fd3332932
+| 来源：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/4167da5c9c317011f5b88b96a0722de3014a2325
 
 |
 
@@ -803,7 +804,7 @@ AR/VR 设备出货量回升，消费级产品价格下探，内容生态完善�
 
 三星 Exynos AI 芯片升级，手机端侧大模型适配，功耗优化。
 
-| 来源：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/a26f835143a411488f8b0f38f4da2483bf32d5ea
+| 来源：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/49ae93fba44c2f06eefc106b31788b6e9978ca52
 
 |
 
@@ -811,7 +812,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 麒麟软件适配主流大模型，国产操作系统 + AI 生态闭环形成。
 
-| 来源：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/60b613fe80aee03c0edacbe87f877be81942a0b7
+| 来源：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/bbedd1297686d1874d33caa72271094daf03dd67
 
 |
 
@@ -819,7 +820,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 推想医疗 AI 辅助手术系统获批，精准导航、风险预警能力显著提升。
 
-| 来源：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/02a9d6d55474c5a0744a9bc30b7bdd47eb4e0637
+| 来源：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/e33dce35f292bee735212696a07ba4be4cf520bb
 
 |
 
@@ -827,7 +828,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 国内成品油价格小幅调整，出行及物流行业成本迎来小幅变动。
 
-| 来源：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/7adce40b97c51acebd07f5ec1c268e8070f8664c
+| 来源：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/34a8b9830cf0d9b4da79e960b31a7fb77500ac1a
 
 |
 
@@ -835,7 +836,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 鼎龙科技 CMP 抛光垫量产，适配先进制程，打破海外垄断。
 
-| 来源：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/5ae3347ffff38abb522b549d539567458b213b3f
+| 来源：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/c3f5d554c1af6c709fb836086bd3a54622218704
 
 |
 
@@ -843,7 +844,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 国内开源平台活跃，GitHub、Gitee 国产替代，自主可控生态构建。
 
-| 来源：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/37e04bdc9ece24bcfa8947023d13686fcef90430
+| 来源：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/dae125addfd47491881f0b6a23a76139e19a0580
 
 |
 
@@ -851,7 +852,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 券商财富管理转型提速，基金代销规模同比增 12%。
 
-| 来源：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/3bfc0f04aa0fe340a2fd3b6d6da1acc4db3f3808
+| 来源：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/7b71d1865ed9fc526ef401dc05907fdc3b2ef9b7
 
 |
 
@@ -859,7 +860,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 全球海上风电装机量同比增 30%，中国沿海省份密集开工。
 
-| 来源：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/8e86d909744aab5e1194c8351d5e85302323e48f
+| 来源：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/f545f8367f4b72ff253fda34b335cc49608ca23b
 
 |
 
@@ -867,7 +868,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 国际白银价格走强，突破 79 美元 / 盎司，工业与避险需求共振。
 
-| 来源：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/10900cb0fa4daeb75f4863bce47fd6989067fedb
+| 来源：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/bfb16d7476f01abf771e9f423d4e59799546cc12
 
 |
 
@@ -875,7 +876,7 @@ AI 降噪技术普及，耳机家电等产品静音效果全面优化。
 
 AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
-| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/01bd2b1229cea639c782d20074dc2fbb99f366dc
+| 来源：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/3cc18bde7df47a95369b4cd0ea3b01bcd5cadb6a
 
 |
 
@@ -883,7 +884,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 阿里云峰会 5 月 20 日杭州开幕，发布 AI 算力与企业服务新方案。
 
-| 来源：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/31b0beed3efcf0d98dce63fb7e3f2be9c0c5b3cf
+| 来源：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/1a51e56147059b6e8112ead3bcbaa38bee4ae19f
 
 |
 
@@ -891,7 +892,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 魅族 22 系列回归，AI 大模型、Flyme 系统优化，小众市场复苏。
 
-| 来源：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/e9f0e60f8387e10fe80a7a8bec11617c5caefcca
+| 来源：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/78e2e2d9a16c45763d2485b39d1e428abec9d191
 
 |
 
@@ -899,7 +900,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 快手 AI 直播、短视频工具升级，降低创作门槛，用户活跃度提升。
 
-| 来源：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/193ccab873cc32bfee48f116774471432d2f18e9
+| 来源：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/abfcf672a086eed8d9c71e2aabc38620713a1129
 
 |
 
@@ -907,7 +908,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 长鑫科技更新科创板招股书，一季度净利增 1688%，拟募资近 300 亿元。
 
-| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/d6b73f5b3c684d886636c1aecb63b13f1effc8ef
+| 来源：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/0c91527832ac012a979cda89979f75185d2b6a1f
 
 |
 
@@ -915,7 +916,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 新型电力系统建设提速，特高压、储能、虚拟电厂协同发展。
 
-| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/51bb2caf84231e77fdb0a7aca1264864907bd3ea
+| 来源：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/6a349d092f2cbf6287cc580676b3111a32117afe
 
 |
 
@@ -923,7 +924,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 精品民宿连锁化布局提速，标准化运营提升行业整体收益。
 
-| 来源：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/fa280ef0b625bfaf1061ad4d2a18f029b50aa843
+| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/9316932ed0c0e97875448ff7a87c8a1ac1fecf47
 
 |
 
@@ -931,7 +932,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 龙芯 3A6000 处理器性能提升，国产 CPU 市占率提升，信创采购放量。
 
-| 来源：https://github.com/brownerica934/rnfvn-PXJMXG/commit/f8e01bbc3a72f99c10d457b7af6012ce52166b46
+| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/f7c4cfee6ba5882a1fe16e12072fe3efc41fb493
 
 |
 
@@ -939,7 +940,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 5 月 20 日现货黄金突破 4490 美元 / 盎司，日内小幅上行，避险需求持续升温。
 
-| 来源：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/4390b854ea938be8a254026c338b1cebdfcead1c
+| 来源：https://github.com/i1fblt1cjw/rnfvn-PLCZKV/commit/4b4e6a4a18434795d53c99ca0ddc25f28f2f3352
 
 |
 
@@ -947,7 +948,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 海外光伏需求高景气，欧洲、中东、拉美装机增长，出口拉动。
 
-| 来源：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/484be3bfd26678eccbc834c56b419cf657e664c9
+| 来源：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/f3709405b847b6a4d16108ba3ca2418e0a59bb60
 
 |
 
@@ -955,7 +956,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 量子精密测量落地，地质勘探、资源探测、环境监测应用。
 
-| 来源：https://github.com/alvaradomegan1024/rnfvn-SLIWBT/commit/ac84e9724b3161d3d16e826ee3f030c12f49e7f6
+| 来源：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/1649c08994766cc0a7cc9beda58429bbb3ed5ea2
 
 |
 
@@ -963,7 +964,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 东方电气风电整机迭代，海上 + 陆上双驱动，国企订单增长。
 
-| 来源：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/b95317d74b4413c738bc86fd792d7fd0e2b2b508
+| 来源：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/ae3f8c0fae22512f76ede6ce098d9289ccc3f114
 
 |
 
@@ -971,7 +972,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 企业智能客服全面升级，多语种智能接待服务全面上线。
 
-| 来源：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/d43506d6e203427c92dd24d15de52acbe242b3be
+| 来源：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/0401fbf61662225115886f75cd2b535e99e49b01
 
 |
 
@@ -979,7 +980,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 普惠金融 AI 赋能，小微企业、三农融资便捷，覆盖面扩大。
 
-| 来源：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/978f8aa4be8fda61544b489ea08bea561209b611
+| 来源：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/c29e3053708691edff77b5d4dfcae123e7afec8d
 
 |
 
@@ -988,7 +989,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 智慧农贸市场改造完成，数字化管理提升农贸交易效率。
 
-| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/aeb1858f1a026564f3efc289caa1028d611c91af
+| 来源：https://github.com/ZixuanWu-efk/qeigra/commit/1b26926b41580b041257d8fd9bde3dd3d390570c
 
 |
 
@@ -996,7 +997,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 产业园区 AI 化转型，智慧园区、算力中心、孵化器、加速器完善。
 
-| 来源：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/9664e4f42dafa80b14bf696fffd833e448f8ac3a
+| 来源：https://github.com/ZixuanWu-efk/qeigra/commit/283d86a915e5d0a64fb903da8f7f7c8746961c37
 
 |
 
@@ -1004,7 +1005,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 超材料应用拓展，隐身、通信、能源、医疗，颠覆性技术落地。
 
-| 来源：https://github.com/moorekevin1671/tztarur-SRQJFR/commit/b98674af991821720f4c20e1eb34194a19f8c343
+| 来源：https://github.com/YufeiDing-rs5/kfxbza/commit/6cf8a412e5becedf4f14dbd4bdd1c0d9ea0cef34
 
 |
 
@@ -1012,7 +1013,7 @@ AI 文案改写工具升级，快速优化各类文稿语句提升流畅度。
 
 vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
-| 来源：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/baca50e928c07c991903b7f0912939d36ad60c3e
+| 来源：https://github.com/YufeiDing-rs5/kfxbza/commit/9fdc8a6b90efede73ac6b6fdd8090e87693729f6
 
 |
 
@@ -1020,7 +1021,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 国家数据局印发数字经济工作要点，加快算力、数据要素协同布局。
 
-| 来源：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/5838e161c82567eea879108a5364f1e1bc3c23af
+| 来源：https://github.com/YufeiDing-rs5/kfxbza/commit/8c38b0673eefc3a8bb323a98176ea5a6582fa49e
 
 |
 
@@ -1028,7 +1029,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 区块链技术赋能供应链金融，应收账款融资规模突破千亿。
 
-| 来源：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/2beb8aad5d52aee6130c063e7e0f72421a0caa2f
+| 来源：https://github.com/YufeiDing-rs5/kfxbza/commit/d05754d3cfacfc1c62e32e042d9006ca28a8579d
 
 |
 
@@ -1036,7 +1037,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 硅片价格企稳，N 型硅片溢价提升，龙头份额集中。
 
-| 来源：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/f9d7351fb430535cfd1e11e810c30a36a48bc27a
+| 来源：https://github.com/flyousur/vnhykq/commit/f1dc9ee69254c1d9eb85684fd0f03e088c1bd202
 
 |
 
@@ -1044,7 +1045,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 通富微电高端 AI 芯片封装量产，适配 H100/H200，国际客户拓展。
 
-| 来源：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/7a7721eef45848a560b2fd5028c8cc35e31296fd
+| 来源：https://github.com/flyousur/vnhykq/commit/3954a1b9d236513a2868dd43e42e6a8d856dae44
 
 |
 
@@ -1052,7 +1053,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 民宿行业入住率走高，短途周边游带动民宿行业盈利。
 
-| 来源：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/64442cae8e4899f0afd0a8d5e8a7ae2b79247b49
+| 来源：https://github.com/flyousur/vnhykq/commit/4bfdf45951751860ff78e696c678fd3f89e789f3
 
 |
 
@@ -1060,7 +1061,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 银行加大普惠小微投放，一季度普惠贷款余额同比增 23%。
 
-| 来源：https://github.com/huffmansamantha5052/trnfvn-PQZRLD/commit/0821ce26d9a2881e4f3ca0e00b773759fe9eb2e0
+| 来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/69325bc32fc6ced190954dc348aca2e37b94a4ee
 
 |
 
@@ -1068,7 +1069,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 茶饮品牌加速下沉市场布局，三四线城市门店快速增多。
 
-| 来源：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/987d35dae5d3af2356af0bf88cc59b3bf4765d07
+| 来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/85cf9373ffca2d9ccf8bff69f089e4b3368ef8db
 
 |
 
@@ -1076,7 +1077,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 互联网金融合规发展，AI 风控、智能投顾、普惠金融，服务小微企业。
 
-| 来源：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/d40fc8744a36b49b477045bec47e5075b0c6dbec
+| 来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/1b3fe6a4b949cc65da80256d79a6c2aa3c967ece
 
 |
 
@@ -1084,7 +1085,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 外汇市场 AI 交易，汇率预测、套利策略、风险对冲，机构应用增加。
 
-| 来源：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/f171e582662f87085efdc1288a4365ea0e0b3e56
+| 来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/9b3f6de5f4fb72ae20bf88db934bd5c76abde3ed
 
 |
 
@@ -1092,7 +1093,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 餐饮行业营收回暖，夜市经济火爆带动夜间消费提升。
 
-| 来源：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/0286899a6b816558b540395b65aa98930c93e1f6
+| 来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/847932f1659c66cf00f8d1407d139ef6a7248c1e
 
 |
 
@@ -1100,7 +1101,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 一季度跨境电商进出口同比增 15.6%，外贸新业态活力增强。
 
-| 来源：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/586eefffbf46c6b32ddfe26eb1b80d16c983ca7f
+| 来源：https://github.com/YufeiDing-rs5/ojnetx/commit/5bdeee7511a21e342901ba0dcc86669d10bb0fea
 
 |
 
@@ -1108,7 +1109,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 南开大学团队攻克钙钛矿电池瓶颈，稳态效率首破 27%。
 
-| 来源：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/af4f04233da45fe093dab1cb31b4f0a892c5490d
+| 来源：https://github.com/YufeiDing-rs5/ojnetx/commit/266bf1dda030db127fb2671897fec0130f9120ca
 
 |
 
@@ -1116,7 +1117,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 白酒中端产品放量，大众消费酒水市场销量稳步上涨。
 
-| 来源：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/fdf70602589c87a4abb5a6b124108fd9165cd9b4
+| 来源：https://github.com/YufeiDing-rs5/ojnetx/commit/e33ee04d1dcb66d04da9fea37d8fd915ead9b9f6
 
 |
 
@@ -1124,7 +1125,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 沐曦 MX1 芯片流片成功，对标 H100，国产高端 AI 芯片突破。
 
-| 来源：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/236fc41fa80831d15d329fe0633de9088f3aebcd
+| 来源：https://github.com/YufeiDing-rs5/ojnetx/commit/b82a0920fd7ca4c21ebaa3dcb9f4b9f62859bdb3
 
 |
 
@@ -1132,7 +1133,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 4 月中国工业、投资、消费数据出炉，经济延续温和复苏态势。
 
-| 来源：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/69952e4a58e2f1bbd9998179fe1060d164ff7cf5
+| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/5c5343ec1f28b9799a94883416aeb5b326c9fd7c
 
 |
 
@@ -1140,7 +1141,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 财付通跨境支付 AI 风控强化，反欺诈能力提升，交易规模扩大。
 
-| 来源：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/98a22dfd349cb3fd4984f41e32bcc735c62fa879
+| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/34b86d941024534205d4aeafb160952b2d6c0db3
 
 |
 
@@ -1148,7 +1149,7 @@ AMD MI300X 芯片商用，1530 亿晶体管、192GB 显存，性价比超 H100�
 
 AMD MI300X 芯片商用，对标 H100，性价比优势显著，云厂商采购增加。
 
-| 来源：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/5d351f01f1ed34dd3a557eae2418ddb652824479
+| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/aba817f4792cfc0cb92d7ce16b40c1c926d59071
 
 |
 
@@ -1156,7 +1157,7 @@ AMD MI300X 芯片商用，对标 H100，性价比优势显著，云厂商采购�
 
 储能装机量快速扩张，一季度新增同比增 80%，锂电储能主导。
 
-| 来源：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/e37b2d1f010867d5b7fd7cd6e9fa52e76fbcdb55
+| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/abb699e80f3f364812ef86cea6982644761b2da9
 
 |
 
@@ -1164,7 +1165,7 @@ AMD MI300X 芯片商用，对标 H100，性价比优势显著，云厂商采购�
 
 Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一。
 
-| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/6bdbf46bd2d9c8cd4c7e2c49b3d881ae17886b0c
+| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/a806636fc4e77fbf18b80345d8b9e0d467616e6e
 
 |
 
@@ -1172,15 +1173,15 @@ Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一
 
 澜起科技内存接口芯片全球第一，DDR5 渗透率提升，订单饱满。
 
-| 来源：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/5c19f19acbc3d0db088dd689850b11bd10f30912
+| 来源：https://github.com/qystqxrhfo/znvbpw/commit/74ab34a76ee64396b5819f212ba5b7189b99ed51
 
 |
 
 建筑智能放样设备普及，工地施工精准度大幅提升。
 
-人民币汇率小幅波动，5 月 20 日在岸收于8.12附近，跨境资金流动平稳。
+人民币汇率小幅波动，5 月 20 日在岸收于8.02附近，跨境资金流动平稳。
 
-| 来源：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/57b7486dc25bbf56c4d7c2ebd2c5f1a70f413a5f
+| 来源：https://github.com/sswgdexo59/kopgyz/commit/74c615bbdcf1f20f0313aefacd1411ff27563782
 
 |
 
@@ -1188,7 +1189,7 @@ Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一
 
 社区团购优化供应链，生鲜菜品品质与性价比同步提升。
 
-| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/f5c60450785ee1c5002c1fff2e4538436b1adb09
+| 来源：https://github.com/jkalkyj8l7/ffoszx/commit/6ff0767ec07a6e6efd8fef8eaa483331306373d7
 
 |
 
@@ -1196,7 +1197,7 @@ Meta Quest 3 热销，AI 内容生成、性价比高，消费级 VR 份额第一
 
 朱雀二号改进型火箭发射成功，2.8 吨载荷入轨，液氧甲烷主力型号。
 
-| 来源：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/be9325cfb99f2adfaf6d3c47ac0ebcefa68c6a19
+| 来源：https://github.com/sswgdexo59/kopgyz/commit/a7c88cb212b60b5868aba2d724a2a5ad80607c79
 
 |
 
@@ -1204,7 +1205,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 淘宝 AI 导购、推荐、生成，个性化购物体验，GMV 增长。
 
-| 来源：https://github.com/hkkj2p8q7w/rnfvn-NOUHOM/commit/38d5a4cef35dc5045745218d9e52b2ca62fa4a70
+| 来源：https://github.com/un2nkt4izo/muaplk/commit/983464c40694b5dad5bedf16280aa227d740c448
 
 |
 
@@ -1212,7 +1213,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 国科微 AI 加速卡商用，国产化替代，数据中心推理成本下降。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/9d519b4af0e7e5b091487f2e3c3cb246d2a775cf
+| 来源：https://github.com/un2nkt4izo/muaplk/commit/5613e11aa0e93571365bc4451d14558f823d2c17
 
 |
 
@@ -1220,7 +1221,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 游戏 AI 陪练功能上线，适配不同段位玩家对战练习。
 
-| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/5afc29942819efa115b7c7eb46213e26262dbaad
+| 来源：https://github.com/i911dx0y3k/mjhhkb/commit/e949f2436f917ef1e334a85fa51ed96b2522240f
 
 |
 
@@ -1228,7 +1229,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 上海新阳光刻胶量产，28nm 工艺适配，国内晶圆厂批量采购。
 
-| 来源：https://github.com/i1fblt1cjw/rnfvn-PLCZKV/commit/048bd0ff8bc1152c67a8ce92f7ed0751c9a117e3
+| 来源：https://github.com/kyvr0dq1sr/fjujtgvb/commit/f7762cebd0c307a7cdfde55b6d23ab07c384517b
 
 |
 
@@ -1236,7 +1237,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 浪潮云政企市场发力，AI 服务器 + 云计算，信创领域订单增长。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/196380d1951efbeda2d40de8ee877120a02c7039
+| 来源：https://github.com/rd8dcp0hif/wstgrdfhg/commit/1699f0fced0645510a9d9bc616ad9abf6cc551ac
 
 |
 
@@ -1244,7 +1245,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 5 月 19 日人民币对美元中间价报 7.1789，较前一日上调 12 个基点。
 
-| 来源：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/bc3e528c33c7f19d2f3c0d0724cc2ab0bd7f7f0e
+| 来源：https://github.com/kn35smmxn5/edvluz/commit/0550d7b5d9e61267aee4e4f320922cf5278f9ea9
 
 |
 
@@ -1252,7 +1253,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 园林智能灌溉系统普及，按需浇水养护绿植节约水资源。
 
-| 来源：https://github.com/s4rs9fzvds/rnfvn-BOFKNX/commit/732f9f8a62a81bd6ad97969e750d922d13e27bcc
+| 来源：https://github.com/w13w16wpm3/ahzunk/commit/e3a21f2eaa2f02d08a4f4ae65f6efb5462baf24e
 
 |
 
@@ -1260,7 +1261,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 智能汽车电子占比提升，AI 座舱、自动驾驶、车联网成核心。
 
-| 来源：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/990e8b1df7113fbd319b152e1ced37d9d7fbad96
+| 来源：https://github.com/qystqxrhfo/znvbpw/commit/ad798915f1671c9a207f1ab305a6558aba0ad43f
 
 |
 
@@ -1268,7 +1269,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。
 
-| 来源：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/b1cc5648806dbf59383d5de7532dd4116eadba22
+| 来源：https://github.com/sswgdexo59/kopgyz/commit/89a59467827860aaea0286bf4b7fba9b1ed9ef6c
 
 |
 
@@ -1276,7 +1277,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 沐曦 MX1 芯片流片成功，对标国际高端 AI 芯片，国产替代加速。
 
-| 来源：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/2f257d3a6b35fc53e8f964f4a039638b54243f90
+| 来源：https://github.com/jkalkyj8l7/ffoszx/commit/30d7b5db26241809387e971051425ef693474426
 
 |
 
@@ -1284,7 +1285,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 开源虚拟数字人框架上线，低成本打造专属虚拟形象。
 
-| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/597931bacb19121e883f852f5c668eb24f57bb56
+| 来源：https://github.com/sswgdexo59/kopgyz/commit/1eb95ddba3be4162d671f84c51404fdf9d08f4d4
 
 |
 
@@ -1292,7 +1293,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 边缘计算节点下沉，工业、能源、交通领域部署量快速增长。
 
-| 来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/576fd599ac0b96afb85864200183fc29328a131f
+| 来源：https://github.com/un2nkt4izo/muaplk/commit/baa761009c3a042c27454c8289007797e0a76a72
 
 |
 
@@ -1300,7 +1301,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 专精特新企业 AI 赋能，技术创新、产品升级、市场拓展加速。
 
-| 来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/230cd1da82e2b0c6995d1800cf9aadaf526dffd7
+| 来源：https://github.com/un2nkt4izo/muaplk/commit/9aaefdfe08924b2cf3d84103d753490c2e046cf3
 
 |
 
@@ -1309,7 +1310,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 医疗便携式检测仪普及，居家快速完成多项基础体检。
 
-| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/a8854e8269a84c92ed9b10ee809940cb8ae1c549
+| 来源：https://github.com/i911dx0y3k/mjhhkb/commit/d38a8f3cb453ab569d0f21a5454a6b80dd4294a9
 
 |
 
@@ -1317,7 +1318,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 英特尔 Gaudi3 芯片迭代，AI 训练性能提升，国内数据中心开始适配。
 
-| 来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/0b58458bb2e47b812ce81a84790b282a4a9ff119
+| 来源：https://github.com/kyvr0dq1sr/fjujtgvb/commit/12df2d07b32f01beeb2245e3bd0d2b92d9a6c50f
 
 |
 
@@ -1325,7 +1326,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 神舟二十三号船箭组合体转运至发射区，近日择机发射，空间站扩建。
 
-| 来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/049307cc746840754ec3078cebe22b89f6e3face
+| 来源：https://github.com/rd8dcp0hif/wstgrdfhg/commit/b2a20cd820789013c70e8c71e1c230e945d69493
 
 |
 
@@ -1333,7 +1334,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 现货黄金突破 4490 美元 / 盎司，避险需求 + AI 算力需求双驱动。
 
-| 来源：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/25ec2e498a649aa909d8c1bc7ed8ac06806cf8a3
+| 来源：https://github.com/kn35smmxn5/edvluz/commit/03cae3e63d29b298e81cbe868bd80c61b971d7e3
 
 |
 
@@ -1341,7 +1342,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 国内新能源装机占比超 50%，风光储协同，能源结构转型加速。
 
-| 来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/75c510cb20c6e9ebe2a88beec4ce2d50e30e7b95
+| 来源：https://github.com/w13w16wpm3/ahzunk/commit/42f22366a581c1d687e65f92b8182f409dde8506
 
 |
 
@@ -1349,7 +1350,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 北京中关村 AI 产业集群，大模型、芯片、算力、应用全链条完善。
 
-| 来源：https://github.com/ZixuanWu-efk/qeigra/commit/ca3110dbd1492ac94a3f857f3c887aaf4cddd7de
+| 来源：https://github.com/ShuyiDeng-hi5/dyplkd/commit/957370974457d19137cbe567dae52ab2fbc89512
 
 |
 
@@ -1357,7 +1358,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 大厂高薪抢 AI 人才，算法工程师、大模型训练师薪资翻倍。
 
-| 来源：https://github.com/jacksonsandra35/rnfvn-BCRIQJ/commit/1bc0e5da44d75f60406f44481173602f4d331a53
+| 来源：https://github.com/ShuyiDeng-hi5/dyplkd/commit/e11c63f8b26f151ac343e2c7b1908a18cc0d2725
 
 |
 
@@ -1365,7 +1366,7 @@ Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 
 
 成都 AI + 游戏 / 文娱融合，虚拟人、元宇宙、数字内容产业活跃。
 
-| 来源：https://github.com/YufeiDing-rs5/kfxbza/commit/938e81059517b8c1444fa05eace565cd7972cc0b
+| 来源：https://github.com/ShuyiDeng-hi5/dyplkd/commit/b386329b7616ed1043678c5935a41775b31a0fff
 
 |
 
@@ -1373,7 +1374,7 @@ TWS 耳机出货量稳定，AI 降噪、空间音频升级，高端市场增长�
 
 养老金融产品上新，适配中老年群体理财需求增多。
 
-| 来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/229a7e88871a574d1a4b854ece188ba7b6d72e8f
+| 来源：https://github.com/flyousur/vnhykq/commit/fc5f07d4252d974a22ca0909787496266549bd53
 
 |
 
@@ -1381,7 +1382,7 @@ TWS 耳机出货量稳定，AI 降噪、空间音频升级，高端市场增长�
 
 债券市场 AI 风控，信用评级、违约预警、久期管理，风险可控。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/fbddfc6b0b474da63e675cd091508e46a162c7d4
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/b63ac11fec5eb8fe41e8836e4206d39d59e350d9
 
 |
 
@@ -1389,7 +1390,7 @@ TWS 耳机出货量稳定，AI 降噪、空间音频升级，高端市场增长�
 
 新能源汽车换电模式加速，宁德时代、比亚迪、蔚来多路线布局。
 
-| 来源：https://github.com/YufeiDing-rs5/ojnetx/commit/8dd41d97221defc51ff11a7c50c842df09c69940
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/c45aa11013d106e7086ef407095979a2460c11b7
 
 |
 
@@ -1397,7 +1398,7 @@ TWS 耳机出货量稳定，AI 降噪、空间音频升级，高端市场增长�
 
 自动驾驶城市 NOA 落地超 100 城，高速领航渗透率持续提升。
 
-| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/d407434277b91498706a55b2b84bd3bb8001c36c
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/f4c6c656d1ff68053216ea40ff224c3f0b22bbe1
 
 |
 
@@ -1405,7 +1406,7 @@ TWS 耳机出货量稳定，AI 降噪、空间音频升级，高端市场增长�
 
 OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/eeb393463416b99ac7253338aa1be00f71f38b70
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/55b77c947f5cc14cabd77b76a650329606b86d6e
 
 |
 
@@ -1413,7 +1414,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 湖南广电 AI 主播上岗，人机协同播报，效率提升、成本下降。
 
-| 来源：https://github.com/YanchenZhao-pe5/uqfhhw/commit/c03c54c242f96deeea427a66e2a8b2c6eb86cd6c
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/6c30106168c8e8cf791f3f7d6c4406e0d875b2d2
 
 |
 
@@ -1421,7 +1422,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 国产车载芯片替代加速，MCU、功率半导体、传感器渗透率提升。
 
-| 来源：https://github.com/jkalkyj8l7/ffoszx/commit/599dba8a9d35ef90155e49e596e24ae9de1e95eb
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/4dc4a9de0fc54e5fd6acc611890b44d824670c87
 
 |
 
@@ -1429,7 +1430,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 特斯拉 Megapack 储能电站扩容，全球最大储能项目落地，成本下降。
 
-| 来源：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/1b298137cf8dd83756f4a48552fcdfddf61a092e
+| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/f19f061463d315408ed567e693293b9413269ef7
 
 |
 
@@ -1437,7 +1438,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 城市商圈业态升级，潮流消费业态入驻盘活线下商业。
 
-| 来源：https://github.com/i911dx0y3k/mjhhkb/commit/091655c3685e63b4d16d4ce40bc535a8272a709e
+| 来源：https://github.com/RuoxiPan-xy1/nsajgl/commit/a37b246a2fc2905ef1c40771630e2f33377f4be2
 
 |
 
@@ -1445,7 +1446,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 阿里云发布真武 M890 芯片，对标英伟达 H100，AI 训练性能提升 40%。
 
-| 来源：https://github.com/w13w16wpm3/ahzunk/commit/7e325b9ae2a7bd5e7f5e7403f37fc5d4099d0830
+| 来源：https://github.com/RuoxiPan-xy1/nsajgl/commit/321e4211691651b955da9ab4681e081ec6538ba5
 
 |
 
@@ -1453,14 +1454,14 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 跨境物流专线加密，外贸货物出海运输时效大幅提升。
 
-| 来源：https://github.com/sswgdexo59/kopgyz/commit/907b8d712530a84d24ab51834fdb2d15095de3cf
+| 来源：https://github.com/YutongXu-ij6/gghyaz/commit/7de55e96862b66f57f2ab7b279e20dff6b703d44
 
 |
 
 算力租赁价格下行，AI 企业按需付费，算力成本显著降低。
 
 ### 八、航天 / 量子 / 前沿科技（451–500）
-| 来源：https://github.com/i911dx0y3k/mjhhkb/commit/d1cd1b5d4ff50bb3b46058e8ad900d0b4fd7338f
+| 来源：https://github.com/HaoyuYu-wx0/hofola/commit/820c1ceba5e3a9fdc15f2b4d78ef0cafb8f5d5ba
 
 |
 
@@ -1468,7 +1469,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 ?国产 AI 配音模型升级，音色自然度提升，商用门槛大幅降低。
 
-| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/dba11650ffe8e9061e54f136ed808d9efb5234e0
+| 来源：https://github.com/HaoyuYu-wx0/hofola/commit/46c7eebbf9ef3c639b3a8f525871dc5651d366dd
 
 |
 
@@ -1476,7 +1477,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 2026 福布斯中国 AI 科技企业 TOP50 发布，中关村科金入选。
 
-| 来源：https://github.com/ShuyiDeng-hi5/dyplkd/commit/b43518516b9150137690631024452fdc857ae177
+| 来源：https://github.com/HaoyuYu-wx0/hofola/commit/73ed93ff0722db90a69d2386e2c2505a0b2bb03d
 
 |
 
@@ -1484,7 +1485,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 亿华通燃料电池发动机量产，商用车、重卡适配，订单增长。
 
-| 来源：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/b7c3a358a962a82f9f5f384ed713318384434dfa
+| 来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/daae90b2b3fd280bfea5333f524b420d341cf102
 
 |
 
@@ -1492,7 +1493,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 国内新能源装机占比超 50%，风光储协同，能源结构转型加速。
 
-| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/e48f6a455764ea56bd4e3fab3f28285868b7ba47
+| 来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/3cee8fb00d11cbde2d08634a67176111cbd79a8c
 
 |
 
@@ -1500,7 +1501,7 @@ OPPO Find N6 实现无感折痕，铰链起伏降至 0.1mm，折叠屏新突破�
 
 AI 音乐创作工具迭代，快速生成适配各类场景原创曲目。
 
-| 来源：https://github.com/YuhanXue-tu7/jvcill/commit/23cf4495da6e62e435b3134d9953865688b48108
+| 来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/903cba284779233d2cdf4f8d06e4093561294055
 
 |
 
@@ -1508,7 +1509,7 @@ AI 音乐创作工具迭代，快速生成适配各类场景原创曲目。
 
 长鑫科技更新科创板招股书，一季度净利增 1688%，拟募资近 300 亿元。
 
-| 来源：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/6ab9ca559ee0e1c7e99fa51ba15e54b237e28347
+| 来源：https://github.com/jye9sml215/dojnry/commit/604eb63296df51516a4741f9b9dd6dcce1d5757e
 
 |
 
@@ -1516,7 +1517,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 低空经济政策放开，无人机、eVTOL、低空旅游，万亿市场开启。
 
-| 来源：https://github.com/RuoxiPan-xy1/nsajgl/commit/3f0989e2513d92ee85f62b94668522e964f2c6b6
+| 来源：https://github.com/mooremelvin598751/zvbahp/commit/312cc88b2aed65f33cb51de5e03cb131c8cfd6e1
 
 |
 
@@ -1524,7 +1525,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 日本恩格尔系数创新高，物价上涨挤压居民消费空间。
 
-| 来源：https://github.com/HaoyuYu-wx0/hofola/commit/e79c26c8500beb661703c32765dbc252fa165a20
+| 来源：https://github.com/mooremelvin598751/zvbahp/commit/0db52b9f8bc0844bd6e1ebf3f4bd8808a12cf7b4
 
 |
 
@@ -1532,7 +1533,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 香港虚拟资产监管落地，AI 交易监测、投资者保护，行业规范化。
 
-| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/782b5d0dc742231eccb3cd69b53fd32ab1dfb63e
+| 来源：https://github.com/caldwelldevin036550/kxfydt/commit/e71d46d4de5f4c05c2d10d1d546a08967cfe6497
 
 |
 
@@ -1540,7 +1541,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 废旧物资回收行业规范化发展，再生资源产业规模持续壮大。
 
-| 来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/b39a02ffc7ea8275174e083316238c53ba1f5147
+| 来源：https://github.com/caldwelldevin036550/kxfydt/commit/0fc6dec36f4daf160048e2b1d0cb54304982b974
 
 |
 
@@ -1548,7 +1549,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 孚能科技软包电池迭代，能量密度提升，新能源汽车、储能适配。
 
-| 来源：https://github.com/caldwelldevin036550/kxfydt/commit/cf1cd7c76b9f4d3fb176398ba0b693958b797600
+| 来源：https://github.com/caldwelldevin036550/kxfydt/commit/c971393d01a56091dbba09d0b53560a298b3fec0
 
 |
 
@@ -1556,7 +1557,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 文旅智慧导览全面普及，景区智能讲解服务覆盖全域。
 
-| 来源：https://github.com/millermichael42/rnfvn-FVRVPE/commit/39e72d483bb54ed4eb89011cade5ff8ce5dc6fe2
+| 来源：https://github.com/ShuyiDeng-hi5/dyplkd/commit/899c96bf8ec7137522b19ee1439c3a644053e56a
 
 |
 
@@ -1564,7 +1565,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 真我 GT7 系列发布，性价比 + AI 影像，线上市场销量增长。
 
-| 来源：https://github.com/robinsonkristina18207/cnvwkp/commit/4629c616250fa21e6181756ce44d38a2eb26879f
+| 来源：https://github.com/robinsonkristina18207/cnvwkp/commit/98bca057812a7c2b984fcaad3fefd3e13e6828c0
 
 |
 
@@ -1572,7 +1573,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 百公里空芯光纤刷新量子通信容量纪录，传输效率提升、成本下降。
 
-| 来源：https://github.com/hernandezdenise6627/qksiyz/commit/a2459ca30eb1417180ef196ee2080731dff2d626
+| 来源：https://github.com/robinsonkristina18207/cnvwkp/commit/6d25dc72737b17254566f2264c1032270eb95b59
 
 |
 
@@ -1580,7 +1581,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 容大感光光刻胶迭代，UV 光刻胶市占率提升，低端市场替代完成。
 
-| 来源：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/f74b01804169a6a331a6940d51fedd52050792e5
+| 来源：https://github.com/robinsonkristina18207/cnvwkp/commit/404742a9348fcbf24a0b9b70d0fdac344090b380
 
 |
 
@@ -1588,7 +1589,7 @@ vivo V3 芯片发布，影像 NPU 性能提升，自研芯片战略加速。
 
 A 股震荡回升，AI、半导体、新能源板块领涨，北向资金净流入。
 
-| 来源：https://github.com/wilsontiffany5482/xmsmpj/commit/b699f505fb7cc7bd208b80498dbd662d53df623b
+| 来源：https://github.com/YutongXu-ij6/gghyaz/commit/a7190a4cf4f069f107a7e326d478cd2927395ac8
 
 |
 
@@ -1596,7 +1597,7 @@ A 股震荡回升，AI、半导体、新能源板块领涨，北向资金净流�
 
 文旅智慧导览全面普及，景区智能讲解服务覆盖全域。
 
-| 来源：https://github.com/titlesuppa/ttyzpx/commit/fcaa57fa5090d7a56f2a02392bd88d69f405aff3
+| 来源：https://github.com/hernandezdenise6627/qksiyz/commit/68056cdc6c0f0dc278002ef382060affe934b7e1
 
 |
 
@@ -1604,7 +1605,7 @@ A 股震荡回升，AI、半导体、新能源板块领涨，北向资金净流�
 
 超导材料突破，高温超导、室温超导研究获阶段性成果，商业化提速。
 
-| 来源：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/5ef852bc5065a551a8a0d97b88413ec16004288f
+| 来源：https://github.com/hernandezdenise6627/qksiyz/commit/621cc2b0eed2a8be11dcf67082cde44071f4e833
 
 |
 
@@ -1612,7 +1613,7 @@ A 股震荡回升，AI、半导体、新能源板块领涨，北向资金净流�
 
 农业无人机功能升级，播种施肥喷药一站式完成农事作业。
 
-| 来源：https://github.com/kaisznia/zvcuoc/commit/334738af4c2f838c62b16fb3de3e45754170e3af
+| 来源：https://github.com/hernandezdenise6627/qksiyz/commit/d5562eeb3b731b1b02321e8f892a0af6c2c5b5f5
 
 |
 
@@ -1620,45 +1621,45 @@ A 股震荡回升，AI、半导体、新能源板块领涨，北向资金净流�
 
 同城生鲜配送行业内卷放缓，行业逐步回归良性盈利发展模式。
 
-| 来源：https://github.com/dalemcquei/tliass/commit/e7aba9577df9a845bb164567c6d83c3e73e72938
+| 来源：https://github.com/HaoyuYu-wx0/hofola/commit/7c432d050f745567e373b32193d2d621f893c2db
 
 |
 
 
 ## 行业趋势点评
-https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/5c1eaf0f7714a9b1a4c9d162e0a11872686ccc37
+https://github.com/wilsontiffany5482/xmsmpj/commit/51211f44f037bafb2228952be13d4e11c43e1d22
 
 
-https://github.com/sdffasabbs/stkymy/commit/e30f7b804a84851d851460d924f1dbf9ea87d826
+https://github.com/wilsontiffany5482/xmsmpj/commit/3f00ab18dd4a4685f9bd01877616d3a206c1a0ad
 
 
-https://github.com/qqxjy0m9cp/jyvxno/commit/457aebd711b85affe1c7abb4e5eeb13a3fd5d593
+https://github.com/hughesmark0822/tayuzn/commit/6215dbe30cf59c4de883fba5c90fc710a50b4494
 
 
-https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/5c7eb81615313c36bc0c890446edba62a92099dc
+https://github.com/YuhanXue-tu7/ogjxhe/commit/beb79706be57681bdeaf1f5bac11230187ecca51
 
 
-https://github.com/bleundew/xragql/commit/dd6894dba594a9d5ca4dee70dc1bedd56865fdd9
+https://github.com/YuhanXue-tu7/ogjxhe/commit/a619a973107277fbb51e9ae4de9e6b47d51de591
 
 
 
 **AI Builders Digest** | 每日06:00自动播报 | 数据来源：
-https://github.com/akaushik98/otfokb/commit/61f5d256f8811fcb587a3f3e22afb867ef346a21
+https://github.com/taylorsean1353/gkvbqv/commit/7dd83326581e2bd229875f6f962e43ff21220f1d
 
 
-https://github.com/changwhitney505/rnfvn-AQGAQV/commit/712b05e16b39a10713789d83674141fc22de5b9a
+https://github.com/taylorsean1353/gkvbqv/commit/a2f59353dbdbd08e75537d8f19bd8741edbcc299
 
 
-https://github.com/shangster0/pqmvgp/commit/96e397f2f28027b2ebb1d3aaf5be0620cb9e6564
+https://github.com/taylorsean1353/gkvbqv/commit/9b5b976d023c9dff18248ba1470825e20f3bab9c
 
 
-https://github.com/aryman108/wueymw/commit/0f42d91cadc92816557852019352612f45c89542
+https://github.com/RuoxiPan-xy1/sglaya/commit/24cd4f357296f2ccc212667bce11dd410c368aa7
 
 
-https://github.com/brownerica934/rnfvn-PXJMXG/commit/a155d649201014ce2417438aaaa5f6ddc3fb3a98
+https://github.com/RuoxiPan-xy1/sglaya/commit/36ccd09b85b7fe6d036315c05e7cfaf90901e80d
 
 
 wefhsdhcvWESDCSDwefsdf.cn
-*报告生成时间：2026年08月12日08时25分49秒*
+*报告生成时间：2026年08月12日11时42分35秒*
 *数据来源：新浪财经、公开媒体报道*
 addsfsdfaf8.10.19
